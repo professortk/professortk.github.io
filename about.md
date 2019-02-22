@@ -9,9 +9,7 @@ Adult and Child Ed. Advocate • <br>
 Historian • <br>
 Social Scientist • <br>
 Cultural Analyst • <br>
-<br><br>
-Lead, follow, or get out of the way!
-<br><br>
+<br>
 ### More Information
 <br>
 A place to include any other types of information that you'd like to include about yourself.
